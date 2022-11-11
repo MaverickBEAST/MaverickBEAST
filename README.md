@@ -2,7 +2,7 @@
 
 ![](https://bhanukalahiru.me/static/aedd11c47652a73ea58dbe560bd64f64/a7715/bhanuka.jpg)
 
-My name is Bhanuka😁 and I'm an Information Technology undergraduate at [General Sir John Kotelawala Defence University](https://kdu.ac.lk/).
+My name is Bhanuka😁 and I'm a Software Engineer. I graduated from  [General Sir John Kotelawala Defence University](https://kdu.ac.lk/) with an Information Technology Degree at 2020.
 
 😋 I started this journey in late 2016 and have been at it since. Currently I'm in my 4th and Final year and Seeking Internship for my industrial training.
 
